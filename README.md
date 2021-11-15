@@ -9,6 +9,6 @@ My name is Gael, I come from Belgium and I am currently in training at BeCode Ch
 
 I hope you will enjoy the visit and feel free to contacte me if you have any questions.
 
-Have a nice day.
+Have a nice day :smile:.
 
 Gael
